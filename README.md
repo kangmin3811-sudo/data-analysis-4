@@ -1,1 +1,0 @@
-# KNA_smart_maintenance_4th_LAB
